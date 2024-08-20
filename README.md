@@ -8,3 +8,5 @@ No toco un libro ni a palos 🚩🚩🚩
 ```
 # Espero hacer nuevos amigos y contactos, disfrutar de la materia y por ultimo y no menos importante aprobar
 
+un poquito de spam de la pagina donde tengo mis juegos
+https://franquinator3000.itch.io/
